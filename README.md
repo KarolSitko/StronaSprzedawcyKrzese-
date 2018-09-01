@@ -1,1 +1,1 @@
-# StronaSprzedawcyKrzese-
+# StronaSprzedawcyKrzesel
